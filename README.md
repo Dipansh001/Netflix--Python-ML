@@ -17,3 +17,7 @@ Insights and Recommendations:
 Content Investment: Increase focus on popular genres and international TV shows.
 Regional Strategy: Target content production and acquisition in high-growth regions.
 Future Trends: Prepare for growing demand in specific content types and regions.
+
+#Dipanshu rawat
+(Data Analyst)
+
